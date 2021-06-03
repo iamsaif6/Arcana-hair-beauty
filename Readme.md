@@ -6,7 +6,7 @@
 
 > ## Checkout Homepage : [Click Here](https://iamsaif6.github.io/Arcana-hair-beauty "Arcana")
 
-> ### Here are the links for other 20 page :
+> ### Here are the links for other 15 pages :
 
 - [bergamot&lavenderbodycream.html ](https://iamsaif6.github.io/Arcana-hair-beauty/bergamot&lavenderbodycream.html "Arcana")
 - [bergamot&lavevderroomspray.html ](https://iamsaif6.github.io/Arcana-hair-beauty/bergamot&lavevderroomspray.html "Arcana")
